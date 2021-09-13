@@ -1,0 +1,2 @@
+# latihan
+tugas jong coding
